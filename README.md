@@ -82,4 +82,4 @@ Suggestions & Feedbacks are Most Welcome
 gadadarshan[at]gmail[dot]com
 ```
 
-That's all Folks. Enjoy.
+That's all Folks Enjoy.
